@@ -14,4 +14,4 @@ BUt all those technical things, all they do is they add up to an exeprience for 
 
 It all looks so smoothless and seamless. Underneath, every single detail has thousands of people behind it.
 
-We at Apple are lookg for people who are passionate about what they do. And that passion it doesn't necessarily come from education. Doesn't necessarily come from education. It comes from within.
+We at Apple are lookg for people who are passionate about what they do. And that passion it doesn't necessarily come from experience. Doesn't necessarily come from education. It comes from within.
